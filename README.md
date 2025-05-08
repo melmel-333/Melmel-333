@@ -6,14 +6,14 @@
 Here are some ideas to get you started:
 -->
 .・。.・゜✭・.
-- ✮ I’m currently working on finish my studies 
-- ♡ I’m currently learning a lot of things
-- ✧ I’m looking forward to studying medicine
-- ❥ I’m looking for help with math and chemestry
-- ♥ Ask me about cats 
-- ✰ How to reach me: instagram
+- ✮ Mi nombre es Melany, tengo 17 años y me gustan los gatos. Me gustaría dedicarme a la medicina, aunque ahorita estoy en 11mo :) 
+- ♡ ""
+- ✧ Me cuesta mucho programar, no puedo decir que verdaderamente domino algún lenguaje de programación, pero si tuviera que elegir uno, escribiría python, que es el que más domino.
+- ❥ Estadísticas de github
+- ♥ Proyectos destacados
+- ✰ Contacto
 - ☆ Pronouns: She/her
-- ♫ Fun fact: I love music and playing volleyball
+- ♫ Fun fact: Me gusta mucho la música, desde cantar, tocar instrumentos, hasta pasar escuchándola todo el día. Juego volleyball, ya no lo hago en un equipo formal, pero me gusta de forma recreativa. Me gusta jugar Valorant, aunque no sea muy buena en ello. 
   
 .・。.・゜✭・.
 
