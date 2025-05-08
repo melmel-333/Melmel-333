@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 -->
 .・。.・゜✭・.
 - ✮ Mi nombre es Melany, tengo 17 años y me gustan los gatos. Me gustaría dedicarme a la medicina, aunque ahorita estoy en 11mo :) 
-- ♡ ""
+- ♡ "Soy un pedacito de cada persona que he amado"
 - ✧ Me cuesta mucho programar, no puedo decir que verdaderamente domino algún lenguaje de programación, pero si tuviera que elegir uno, escribiría python, que es el que más domino.
 - ❥ Estadísticas de github
 - ♥ Proyectos destacados
