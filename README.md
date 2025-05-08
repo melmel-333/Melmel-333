@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - ✰ How to reach me: instagram
 - ☆ Pronouns: She/her
 - ♫ Fun fact: I love music and playing volleyball
-- 
+  
 .・。.・゜✭・.
 
